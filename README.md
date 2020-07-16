@@ -1,4 +1,5 @@
-# Programmer
+# VANSHITA RAMESH SINGH
+[Email](singhvanshita898@gmail.com) 
 ## Pursuing B.Tech degree in VJTI college(CS branch)
 ---
 ### Projects

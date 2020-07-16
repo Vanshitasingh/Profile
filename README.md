@@ -1,5 +1,4 @@
-# VANSHITA RAMESH SINGH
-[Email](singhvanshita898@gmail.com) 
+# VANSHITA RAMESH SINGH 
 ## Pursuing B.Tech degree in VJTI college(CS branch)
 ---
 ### Projects
